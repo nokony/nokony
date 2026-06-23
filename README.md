@@ -9,7 +9,7 @@
 　　⠀⠀⠀⠀⠀　　⠀⠀⠀⠀⠀　　⠀⠀⠀⠀⠀　　⠀⠀⠀⠀⠀　⠀* ⠀⠀⠀.　*
 
 
-I'm not as good as you when it comes to this kind of stuff, machine or not.　⠀  　　,　　　　　　　　　　⠀⠀⠀⠀⠀
+⠀⠀.　　　　I'm not as good as you when it comes to this kind of stuff, machine or not.　⠀  　　,　　　　　　　　　　⠀⠀⠀⠀⠀
  
  　　 ⠀⠀⠀.　*　.　　　　　　　　　　　　　　　　 But what I'm trying to say is　—　p͟l͟e͟a͟s͟e͟ w͟a͟i͟t͟ f͟o͟r͟ m͟e͟.　*　　 　　.
  
