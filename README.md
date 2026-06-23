@@ -17,7 +17,7 @@
    
 　⠀⠀⠀⠀⠀⠀⠀⠀　⠀　ﾟ　　　　　.⠀⠀⠀⠀⠀　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀.⠀　　⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀,　　⠀⠀⠀⠀⠀　　⠀⠀⠀⠀⠀　⠀* ⠀⠀⠀.　*
 
-[![](https://github.com/nokony/nok/blob/main/firstoart.png?raw=true)](https://github.com/nokony/nok/blob/90f27f552868bae10317bd0c46149dc11afb4271/firstoart.png)
+![](https://github.com/nokony/nokony/blob/2ca411e9e70881d9904ddc53170e35fc59f9c750/firstoart.png)
 
 　.　　.　　　　 　　　　  　 ˚　.　　　　　 　　　　 . ✦　　　　　　 　　　　 　 　˚　　　　 . 
  
@@ -31,7 +31,7 @@ No matter how long it takes⠀⠀⠀⠀⠀　　⠀⠀⠀⠀⠀　⠀* ⠀⠀⠀
 　　　.   　　˚　　 　　　　 　　　　 　　*　　 　　　　 　　　　 　　✦　　　.　
 
 
-[![](https://github.com/nokony/nok/blob/main/seocndpart.png?raw=true)](https://github.com/nokony/nok/blob/251e7a36a00283672c6de378addc773b9a8bddff/seocndpart.png)
+![](https://github.com/nokony/nokony/blob/2ca411e9e70881d9904ddc53170e35fc59f9c750/seocndpart.png)
 
 　　　　　　　　　　　　　[Just wait, when you get back, you'll even have a better system than I do.](https://spokieshere.straw.page)
 
