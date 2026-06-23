@@ -25,9 +25,9 @@ No matter how long it takes⠀⠀⠀⠀⠀　　⠀⠀⠀⠀⠀　⠀* ⠀⠀⠀
          
 　　　　˚　　 . 　　　　however far you stray from my orbit,⠀⠀⠀　　⠀⠀⠀⠀.　　　　.　　　　　　*　　 　　✦　
 
-　　　　　　　　　　　　　　　　　　it wouldn't change the fact that I carry your love as a part of my soul,
+　　　　　　　　　　　　　　　　　　　　it wouldn't change the fact that I carry your love as a part of my soul,
 
-　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　and my love as part of *yours*.
+　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　　and my love as part of *yours*.
 　　　.   　　˚　　 　　　　 　　　　 　　*　　 　　　　 　　　　 　　✦　　　.　
 
 
